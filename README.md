@@ -1,0 +1,1 @@
+# santoshsinghcollageofpharmacy.com
