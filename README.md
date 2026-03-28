@@ -1,1 +1,1 @@
-# santoshsinghcollageofpharmacy.com
+# santoshsinghcolleofpharmacy.com
